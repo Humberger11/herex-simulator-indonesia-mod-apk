@@ -76,5 +76,3 @@ For the best experience, ensure your device meets the game’s requirements.
 
 ## Download Herex Simulator Indonesia MOD APK Unlimited Money  
 Dive into the world of Indonesian motorbike racing by downloading Herex Simulator Indonesia MOD APK Unlimited Money from ModHello today. Explore iconic landmarks, compete in thrilling races, and customize your dream bike—all for free.  
-
-Click the **Download** button now and start your journey through Indonesia’s vibrant streets.
